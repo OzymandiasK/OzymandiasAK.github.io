@@ -1,2 +1,2 @@
-# OzymandiasAK.github.io
+# OzymandiasK.github.io
 Blog
