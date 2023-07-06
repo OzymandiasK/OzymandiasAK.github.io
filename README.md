@@ -1,0 +1,2 @@
+# OzymandiasAK.github.io
+Blog
